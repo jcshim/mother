@@ -1,7 +1,6 @@
 # 남우 집사님, 추도 예배 순서 (2025년 3월 29일)
 
-##
-* 사  회 : 심재일
+## * 사  회 : 심재일
 * 준비찬송 : [559장 사철에 봄바람 불어잇고](https://youtu.be/SNHitOQS0mI?si=7p7KPDYynkDScqPO)
 * 조용한 기도 
 * 찬  송 : [337장 내모든 시험 무거운 짐을](https://youtu.be/m7iFdAXjRWE?si=RA8CB1I03Yo5UDkE)
